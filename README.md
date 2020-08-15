@@ -30,5 +30,4 @@ This family tree can be confusing, but we aren't here to explain it. We're here 
 ![Image](https://res.cloudinary.com/dge89aqpc/image/upload/v1596902266/Family_ihvtoo.png)
 
 ### __The Kardashians or The Jenners__
-
 ![Image](https://res.cloudinary.com/dge89aqpc/image/upload/v1596902428/AVen_yxqgue.png)

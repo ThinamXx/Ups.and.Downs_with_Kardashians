@@ -1,5 +1,6 @@
 # **Ups and Downs with Kardashians & Jenners**
 
+
 ### __The Sisters and Google Trends__
 While I'm not a fan nor a hater of the __Kardashians and Jenners__, the polarizing family intrigues me. Why? Their marketing prowess. Say what you will about them and what they stand for, they are great at the hype game. Everything they touch turns to content.
 
